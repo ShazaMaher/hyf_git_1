@@ -1,3 +1,3 @@
 it's super sunny outsideid.¨
 
-why am I inside?
+why am I still inside?
